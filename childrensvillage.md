@@ -6,5 +6,7 @@ The Children’s Village will be held inside the Shepherd Elementary Gym from 1 
 
 ![](/assets/image (6).jpeg)
 
+
+
 *For more information, contact Patti Sandel at (989) 828-5534.*
 
