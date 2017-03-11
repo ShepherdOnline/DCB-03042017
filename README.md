@@ -1,2 +1,2 @@
-# Daily Community Brief
-## March 4, 2017
+# The Shepherd Journal
+## March 10, 2017
